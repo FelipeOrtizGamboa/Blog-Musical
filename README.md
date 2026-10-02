@@ -2,7 +2,7 @@
 *Jesús David López Ahumada
 *Cristian David Valencia Mora
 *Felipe Ortiz Gamboa
-
+https://trello.com/invite/b/6ac004c5c12839b605dc29b7/ATTIa6d7ac58e57255210e71bc26873b1f1dF942561C/blog-musical
 
 <img width="1908" height="742" alt="image" src="https://github.com/user-attachments/assets/7d7fd5ae-149b-4a5b-b604-f7b5ff391969" />
 <img width="1080" height="788" alt="image" src="https://github.com/user-attachments/assets/39070e71-307e-4699-a9a6-4ae766f76363" />
